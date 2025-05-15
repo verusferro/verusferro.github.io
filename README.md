@@ -1,1 +1,0 @@
-# kerem-ozdemir.github.io
